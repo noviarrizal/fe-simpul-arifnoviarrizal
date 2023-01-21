@@ -1,1 +1,0 @@
-# fe-simpul-arifnoviarrizal
